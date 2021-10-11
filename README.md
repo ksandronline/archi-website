@@ -1,1 +1,0 @@
-## Страницы сайта [archi.ksandr.online](http://archi.ksandr.online)
